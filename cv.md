@@ -57,3 +57,9 @@
 
 - BELARUSIAN STATE UNIVERSITY (Bachelor)
 -  TEACHMESKILLS (certificate)
+
+---
+
+####  Language: 
+
+-English B1
